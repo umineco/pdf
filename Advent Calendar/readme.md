@@ -1,1 +1,1 @@
-Advent Calendarの寄稿一覧
+Advent Calendarへの投稿記事一覧
